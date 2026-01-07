@@ -1,7 +1,7 @@
 <div align="center">
-  <img width = "70%" src="https://i.pinimg.com/736x/8d/bc/7b/8dbc7b30530caed8087dcd7a581ca920.jpg">
+  <img width = "60%" src="https://i.pinimg.com/736x/8d/bc/7b/8dbc7b30530caed8087dcd7a581ca920.jpg">
 </div>
-<div align="center">art credits; alien stage</div>
+<div align="center">art credits; milgram</div>
 <br>
 
 **byi**: i do not play ponytown with the intent to create well-acquainted and lasting friendships, so do not expect this from me. i rarely interact with people outside of my party, and on the off-chance that i do, be aware that i **often go afk without warning**, i am **typically off-tab**, and i will usually adjust to your behaviour *unless you are weird.* i **don't like nor need tone tags** and i am not fond of oversharing about myself. i am very skeptical and judgemental, so i apologise for my hesitance to believe certain things<br>
