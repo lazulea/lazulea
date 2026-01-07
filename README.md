@@ -1,5 +1,5 @@
 <div align="center">
-  <img width = "70%" src="https://i.pinimg.com/736x/04/18/52/041852c05455580e5c7b06cc80b8b50d.jpg">
+  <img width = "70%" src="https://i.pinimg.com/736x/8d/bc/7b/8dbc7b30530caed8087dcd7a581ca920.jpg">
 </div>
 <div align="center">art credits; alien stage</div>
 <br>
